@@ -8,6 +8,10 @@ I am a Clinical researcher working at the intersection of clinical research and 
 
 📫 How to reach me: 
 
-Email: sania.siddiqui021@gmail.com/
-Linkedin: https://www.linkedin.com/in/sania-siddiqui021//
+Email: sania.siddiqui021@gmail.com
+
+
+Linkedin: https://www.linkedin.com/in/sania-siddiqui021/
+
+
 UpWork: https://www.upwork.com/freelancers/~017dc470eb57a75e68
